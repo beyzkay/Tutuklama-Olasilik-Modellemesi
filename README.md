@@ -1,1 +1,1 @@
-# Tutuklama-Olas-l-k-Modellemesi
+# Tutuklama-Olasılık-Modellemesi
