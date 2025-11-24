@@ -1,0 +1,1 @@
+# Tutuklama-Olas-l-k-Modellemesi
